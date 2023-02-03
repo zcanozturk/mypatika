@@ -1,0 +1,2 @@
+# mypatika
+çalışma projeleri 
